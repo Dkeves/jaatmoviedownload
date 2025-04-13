@@ -5,11 +5,11 @@ Still 𝙽ow 'Jaat' are options for Downl𝚘ading or W𝚊tching 'Jaat' Strea�
 
 
 
-➤ ►🌍📺📱👉 'Jaat' (2025) F𝚞ll Mo𝚟ie
+[➤ ►<a herf="https://arolinks.com/PGmN9">🌍📺📱👉 'Jaat' (2025) F𝚞ll Mo𝚟ie]</a> 
 
-➤ ►🌍📺📱👉 'Jaat' (2025) F𝚞ll Mo𝚟ie
+[➤ ►<a herf="https://arolinks.com/PGmN9">🌍📺📱👉 'Jaat' (2025) F𝚞ll Mo𝚟ie]</a> 
 
-➤ ►🌍📺📱👉 W𝚊tch 'Jaat' (2025) F𝚞ll Mo𝚟ie Downl𝚘ad
+[➤ ►<a herf="https://arolinks.com/PGmN9">🌍📺📱👉 'Jaat' (2025) F𝚞ll Mo𝚟ie]</a> 
 
 
 
